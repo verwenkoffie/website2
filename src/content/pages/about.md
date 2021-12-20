@@ -9,7 +9,7 @@ Ik hou veel van een kopje goed gezette **koffie** ;-) Ik hou ook van het zien wa
 
 ![](/assets/pic1.jpg)
 
-Ik ben een man geboren in 1981. Ik ben het type dat niet onnmiddellijk opvalt, het type dat je vriendelijke buur had kunnen zijn. Ik ben hoger opgeleid, heb een brede interesse en ben gemakkelijk in de omgang. Ik pendel met de fiets naar het werk en heb daarmee wel een goede basisconditie. Op de foto's kan je zien dat ik normaal gebouwd ben en van nature weinig beharing heb.
+Ik ben een man geboren in 1981, 40 jaar (op het moment van het schrijven). Ik ben het type dat niet onnmiddellijk opvalt, het type dat je vriendelijke buur had kunnen zijn. Ik ben hoger opgeleid, heb een brede interesse en ben gemakkelijk in de omgang. Ik pendel met de fiets naar het werk en heb daarmee wel een goede basisconditie. Op de foto's kan je zien dat ik normaal gebouwd ben en van nature weinig beharing heb.
 
 ![](/assets/pic2.jpg)
 
@@ -19,7 +19,7 @@ Ik heb een full-time job en doe dit voor mijn plezier. Dat betekent enerzijds da
 
 **Vertrouwen, hygiëne en discretie** draag ik hoog in het vaandel. Ik verwacht dat ook van jou.
 
-Ik wens enkel afspraken te maken met vrouwen vanaf 30 jaar. Ben je 50+ of 60+, dan mag je ook niet aarzelen om contact op te nemen!
+Ik wens enkel afspraken te maken met vrouwen vanaf 30 jaar. Met een koppel zijn is, mits goed overleg, ook mogelijk. Ben je 50+ of 60+, dan mag je ook niet aarzelen om contact op te nemen - elke leeftijd heeft zijn charmes!
 
 Heb ik je interesse kunnen vasthouden? Goed! Je mag in het aanbod eens kijken welke 'verwenkoffies' er zijn! Heb je vragen, bedenkingen, twijfels, ... aarzel dan niet om me geheel vrijblijvend te contacteren.
 

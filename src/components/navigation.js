@@ -20,7 +20,7 @@ const MenuItems = [
   },
   {
     path: "/info",
-    title: "Praktisch",
+    title: "Beschikbaarheid",
   },
   {
     path: "/price",

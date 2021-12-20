@@ -2,7 +2,7 @@
 template: blog-post
 title: Verwenkoffie
 slug: /verwenkoffie
-date: 2020-05-09T05:53:17.102Z
+date: 2021-12-20T05:53:17.102Z
 description: verwenmassage
 featuredImage: /assets/coffee-small.jpg
 ---
