@@ -6,22 +6,16 @@ title: Beschikbaarheid
 
 Onderstaand overzicht geeft de beschikbare uren. Ik tracht het overzicht zo goed mogelijk up-to-date te houden!
 
-(*bijgewerkt op 2022-01-02*)
+(*bijgewerkt op 2022-01-08*)
 
 ## januari
 
-- di 11 januari: 9:00-15:00
-- wo 12 januari: 9:00-13:00
-- ---
-- di 18 januari: 9:00-15:00
-- wo 19 januari: 9:00-13:00
-- do 20 januari: 9:00-12:00
-- vr 21 januari: 9:00-12:00
-- ---
-- di 25 januari: 9:00-15:00
-- wo 26 januari: 9:00-13:00
-- do 27 januari: 9:00-12:00
-- vr 28 januari: 9:00-12:00
+Gezien de corona-golf weer in alle hevigheid toeslaat, heb ik besloten om in januari geen afspraakjes te maken.
+
+Ik kijk er naar uit om de draad weer op te pikken in februari.
+
+Laat je het echter niet weerhouden om reeds contact met me op te nemen!
+
 
 # Praktisch
 
