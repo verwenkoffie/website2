@@ -6,16 +6,29 @@ title: Beschikbaarheid
 
 Onderstaand overzicht geeft de beschikbare uren. Ik tracht het overzicht zo goed mogelijk up-to-date te houden!
 
-(*bijgewerkt op 2022-01-08*)
+(*bijgewerkt op 2022-01-18*)
 
 ## januari
 
 Gezien de corona-golf weer in alle hevigheid toeslaat, heb ik besloten om in januari geen afspraakjes te maken.
 
-Ik kijk er naar uit om de draad weer op te pikken in februari.
+## februari
 
-Laat je het echter niet weerhouden om reeds contact met me op te nemen!
+Er wordt verwacht dat in februari het beter gaat gaan, alsook werkt mijn booster volop.
 
+- wo  2 februari: 9:00-13:00
+- ---
+- di  8 februari: 9:00-14:00
+- wo  9 februari: 9:00-13:00
+- do 10 februari: 9:00-12:00
+- ---
+- di 15 februari: 9:00-14:00
+- wo 16 februari: 9:00-13:00
+- do 17 februari: 9:00-12:00
+- ---
+- di 22 februari: 9:00-14:00
+- wo 23 februari: 9:00-13:00
+- do 24 februari: 9:00-12:00
 
 # Praktisch
 
