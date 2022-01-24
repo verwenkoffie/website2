@@ -9,7 +9,7 @@ Ik hou veel van een kopje goed gezette **koffie** ;-) Ik hou ook van het zien wa
 
 ![](/assets/pic1.jpg)
 
-Ik ben een man geboren in 1981, 40 jaar (op het moment van het schrijven). Ik ben het type dat niet onnmiddellijk opvalt, het type dat je vriendelijke buur had kunnen zijn. Ik ben hoger opgeleid, heb een brede interesse en ben gemakkelijk in de omgang. Ik pendel met de fiets naar het werk en heb daarmee wel een goede basisconditie. Op de foto's kan je zien dat ik normaal gebouwd ben en van nature weinig beharing heb.
+Ik ben een man geboren in 1981, 40 jaar (op het moment van het schrijven). Ik ben het type dat niet onnmiddellijk opvalt, het type dat je vriendelijke buur had kunnen zijn. Ik ben hoger opgeleid, heb een brede interesse en ben gemakkelijk in de omgang. Ik ben sportief, pendel met de fiets en loop regelmatig. Op de foto's kan je zien dat ik normaal gebouwd ben en van nature weinig beharing heb.
 
 ![](/assets/pic2.jpg)
 
