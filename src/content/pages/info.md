@@ -16,8 +16,6 @@ Gezien de corona-golf weer in alle hevigheid toeslaat, heb ik besloten om in jan
 
 Er wordt verwacht dat in februari het beter gaat gaan, alsook werkt mijn booster volop.
 
-- wo  2 februari: 9:00-13:00
-- ---
 - di  8 februari: 9:00-14:00
 - wo  9 februari: 9:00-13:00
 - do 10 februari: 9:00-12:00
