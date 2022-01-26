@@ -6,7 +6,7 @@ title: Beschikbaarheid
 
 Onderstaand overzicht geeft de beschikbare uren. Ik tracht het overzicht zo goed mogelijk up-to-date te houden!
 
-(*bijgewerkt op 2022-01-18*)
+(*bijgewerkt op 2022-01-26*)
 
 ## januari
 
