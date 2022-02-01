@@ -6,11 +6,7 @@ title: Beschikbaarheid
 
 Onderstaand overzicht geeft de beschikbare uren. Ik tracht het overzicht zo goed mogelijk up-to-date te houden!
 
-(*bijgewerkt op 2022-01-26*)
-
-## januari
-
-Gezien de corona-golf weer in alle hevigheid toeslaat, heb ik besloten om in januari geen afspraakjes te maken.
+(*bijgewerkt op 2022-02-01*)
 
 ## februari
 
