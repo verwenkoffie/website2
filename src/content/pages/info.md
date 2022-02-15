@@ -6,16 +6,12 @@ title: Beschikbaarheid
 
 Onderstaand overzicht geeft de beschikbare uren. Ik tracht het overzicht zo goed mogelijk up-to-date te houden!
 
-(*bijgewerkt op 2022-02-08*)
+(*bijgewerkt op 2022-02-15*)
 
 ## februari
 
 Er wordt verwacht dat in februari het beter gaat gaan, alsook werkt mijn booster volop.
 
-- do 10 februari: 9:00-12:00
-- ---
-- di 15 februari: 9:00-14:00
-- wo 16 februari: 9:00-13:00
 - do 17 februari: 9:00-12:00
 - ---
 - di 22 februari: 9:00-14:00
