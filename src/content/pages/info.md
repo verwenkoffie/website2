@@ -10,12 +10,12 @@ Onderstaand overzicht geeft de beschikbare uren. Ik tracht het overzicht zo goed
 
 ## februari
 
-Er wordt verwacht dat in februari het beter gaat gaan, alsook werkt mijn booster volop.
-
 - di 22 februari: 9:00-14:00
 - wo 23 februari: 9:00-13:00
 - do 24 februari: 9:00-12:00
-- ---
+
+## maart
+
 - di  1 maart: 9:00-12:00
 - wo  2 maart: 9:00-13:00
 - ---
