@@ -6,10 +6,12 @@ title: Beschikbaarheid
 
 Onderstaand overzicht geeft de beschikbare uren. Ik tracht het overzicht zo goed mogelijk up-to-date te houden!
 
-(*bijgewerkt op 2022-02-28*)
+(*bijgewerkt op 2022-03-01*)
 
 ## maart
 
+- di  1 maart: 20:00-24:00 - *uitzonderlijk op een avond*
+- ---
 - di  8 maart: 9:00-14:00
 - wo  9 maart: 9:00-13:00
 - ---
