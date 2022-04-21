@@ -4,17 +4,9 @@ slug: /info
 title: Beschikbaarheid
 ---
 
-Onderstaand overzicht geeft de beschikbare uren. Ik tracht het overzicht zo goed mogelijk up-to-date te houden!
+# Beschikbaarheid
 
-(*bijgewerkt op 2022-03-28*)
-
-## maart
-
-In maart is niets meer mogelijk.
-
-## april
-
-Nog geen zicht op welke momenten in april het kan. Aarzel niet om gewoon te vragen!
+Ik kan me het makkelijkst overdag tijdens de week vrij maken. Andere momenten zijn moeilijker maar zouden wel eens kunnen. Vraag maar!
 
 # Praktisch
 
