@@ -45,6 +45,15 @@ const Layout = ({ children, className, props }) => {
       </Header>
       <main className={"container " + className}>{children}</main>
       <Footer />
+        <!-- Google tag (gtag.js) -->
+        <script async src="https://www.googletagmanager.com/gtag/js?id=G-STZ9MFJXNG"></script>
+        <script>
+          window.dataLayer = window.dataLayer || [];
+          function gtag(){dataLayer.push(arguments);}
+          gtag('js', new Date());
+
+          gtag('config', 'G-STZ9MFJXNG');
+        </script>
     </div>
   )
 }
